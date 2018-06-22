@@ -16,6 +16,7 @@
 - [forbes.com/leadership](http://www.forbes.com/leadership)
 - [Addicted to success](http://addicted2success.com)
 - [Quiet Revolution: Unlocking the Power of Introverts. Susan Cain](http://www.quietrev.com)
+- [Create, Grow, And Live Off Your Online Business](https://neckelius.com/blog) 
 
 <iframe style="border: none" src="//html5-player.libsyn.com/embed/episode/id/4405704/height/100/width/480/theme/custom/autoplay/no/autonext/no/thumbnail/no/preload/no/no_addthis/no/direction/backward/render-playlist/no/custom-color/87A93A/" height="100" width="480" scrolling="no"  allowfullscreen webkitallowfullscreen mozallowfullscreen oallowfullscreen msallowfullscreen></iframe>
 
